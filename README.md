@@ -8,6 +8,7 @@ I'm Cynamical!
 - 👀 I like HTML, CSS and overall just technology
 - 👍 Friends with @WWEMGamer2
 - 👯 I’m looking to collaborate on landing pages/portfolios.
+- 📨 Want to contact me? cynamicalnft@gmail.com
 - ⚡ Fun Fact: Althought I suck at coding, I'm decent in making ideas.
 - 🌱 Trying to grow my HTML and CSS skils, any tips will be very appreciated!
 
