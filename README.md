@@ -6,7 +6,6 @@ I'm Cynamical!
 - 🏫 I'm currently learning HTML/CSS, help is very appreciated!
 - 🤔 I'm looking for help on HTML and CSS
 - 👀 I like HTML, CSS and overall just technology
-- 👍 Friends with @WWEMGamer2
 - 👯 I’m looking to collaborate on landing pages/portfolios.
 - 📨 Want to contact me? cynamicalnft@gmail.com
 - ⚡ Fun Fact: Althought I suck at coding, I'm decent in making ideas.
