@@ -5,7 +5,7 @@ I'm Cynamical!
 - 🔭 I’m currently working on getting better at HTML and CSS
 - 🏫 I'm currently learning HTML/CSS, help is very appreciated!
 - 🤔 I'm looking for help on HTML and CSS
-- 👍 Friends with @WE
+- 👍 Friends with @WWEMGamer2
 - 👯 I’m looking to collaborate on landing pages/portfolios.
 - ⚡ Fun Fact: Althought I suck at coding, I'm decent in making ideas.
 
